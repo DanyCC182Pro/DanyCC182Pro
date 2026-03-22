@@ -6,7 +6,7 @@
 ╚══════════════════════════════════════════════════════════════════╝
 ```
 
-# 🕳️ Descendido al Abismo del Código
+# 🕳️ Bienvenidos 
 
 `[ ARIFURETA — VOID PROTOCOL ACTIVE ]`
 
